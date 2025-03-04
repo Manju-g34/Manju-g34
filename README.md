@@ -16,8 +16,8 @@ I’m open to collaborating on:
 
 📫 How to Reach Me  
 - GitHub: [Manju-g34](https://github.com/Manju-g34)  
-- Email: [YourEmail@example.com] (Replace with your actual email)  
-- LinkedIn: [Your LinkedIn Profile] (If applicable)  
+- Email: 2200031972@kIuniversity.in  
+- LinkedIn: https://www.linkedin.com/in/manjunadh-parlapally-781a68332/
 
 😄 Pronouns  
 (You can add your preferred pronouns here)  
